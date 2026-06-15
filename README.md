@@ -1,3 +1,5 @@
+Illuminati Game Privacy Policy
+
 PRIVACY POLICY
 
 Introduction
